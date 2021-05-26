@@ -1,4 +1,4 @@
-# Crust Grants Program
+# Trust Grants Program
 
 
 ## Grants Program Benefits
